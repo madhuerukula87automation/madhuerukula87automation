@@ -15,7 +15,7 @@
   - Automation Framework Design
   - 
 
--> 📬 Reach me at: [  madhuerukula87@gmail.com  ] | Connect on linkedin. (https://www.linkedin.com/in/madhu-erukula-12158a265/)
+-> 📬 Reach me at: [  madhuerukula87@gmail.com  ] |
 
 -> 😄 Pronouns: He/Him
 
